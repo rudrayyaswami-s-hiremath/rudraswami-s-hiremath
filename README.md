@@ -1,2 +1,2 @@
-# rudraswami-s-hiremath
+# rudrayya-s-hiremath
 hi there
